@@ -1,0 +1,1 @@
+This was a fun project an a learning chance for me to mess around with apis not intended to be anything crazy if you need it be my guest but mainly just have fun with this program that i created. Created By IP38
